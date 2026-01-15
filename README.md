@@ -51,11 +51,8 @@ This project was made **only for Valentine’s Day**, to make my pookieee smile,
 
 ## 💕 Footer Message
 
-> Made with endless love for my pookieee 💕 oev
+> Made with endless love for my pookieee 💕
 
 ---
 
-## 💌 Final Note
 
-If you’re reading this, pookieee…  
-You are my favorite Valentine, today and always 🧸💘
